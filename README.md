@@ -10,3 +10,4 @@ Grupo 4: <br>
 📌 Amanda <br>
 📌 Bianca M <br>
 </p>
+![Captura da Web_10-4-2023_18344_](https://user-images.githubusercontent.com/127903562/231003581-30e87ec7-b7f2-4c6c-a77c-83de438869b1.jpeg)
